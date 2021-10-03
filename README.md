@@ -1,1 +1,1 @@
-# [Tharuk Renuja Official Website](http://tharukrenuja.ml)
+# [Tharuk Renuja Official Website](https://trtechguide.wordpress.com/)
